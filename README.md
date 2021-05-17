@@ -1,1 +1,1 @@
-# MGQHH
+# MGQ: Holow Hero
